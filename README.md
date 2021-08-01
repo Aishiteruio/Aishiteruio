@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Casio and i still don't know nothing about code.
 Need some halp. Need some support, practices and companion in the fight
 for better tommorow.
-- 👀 I’m interested in 
+- 👀 I’m interested in finding smart and cute gf but lat's talk seriously.
 - 🌱 I’m currently learning what is wordpress used for. 
 - 💞️ I’m looking to collaborate on a minimalist platform based on 
 few functional spatter and small amount of code.
