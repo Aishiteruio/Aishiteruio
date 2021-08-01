@@ -4,7 +4,7 @@ for better tommorow.
 - 👀 I’m interested in finding smart and cute gf but lat's talk seriously.
 - 🌱 I’m currently learning what is wordpress used for. 
 - 💞️ I’m looking to collaborate on a minimalist platform based on 
-few functional spatter and small amount of code.
+few functional spatters and small amount of code.
 - 📫 How to reach me: aishiteru.io - there are some useful information 
 about the project.
 
